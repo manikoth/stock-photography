@@ -1,12 +1,10 @@
 # Collection of Stock Photography Resources
 
-# Stock Photography
-
 ## General
 
 [Picography - Gorgeous Free Photos (CC0)](https://picography.co/)
 
-[](https://pixabay.com/)
+[Pixabay](https://pixabay.com/)
 
 [Beautiful Free Images & Pictures | Unsplash](https://unsplash.com/)
 
