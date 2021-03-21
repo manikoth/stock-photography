@@ -12,6 +12,8 @@
 [FOCA Stock - Free photos, videos, and templates](https://focastock.com/)
 [Free high resolution photography - Life of Pix](https://www.lifeofpix.com/)
 [Stocksy](https://www.stocksy.com/)
+[Stock Vault](https://www.stockvault.net/)
+[Designers Pics](http://www.designerspics.com/)
 
 ## Public Domain
 [Vintage and Modern Free Public Domain Images Archive Download - Public Domain Images | Free Stock Photos](https://publicdomainarchive.com/)
